@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Inevitab13
+- 👋 Hi, I’m 'The Baz' ;|
 - 👀 I’m interested in deez
 - 🌱 I’m currently learning (I don't even know eh)
 - 💞️ I’m looking to collaborate on (memes)
